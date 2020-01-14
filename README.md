@@ -1,3 +1,5 @@
-# My Awesome Book
+# ШРИ БРИХАД-БХАГАВАТАМРИТА
 
-This file file serves as your book's preface, a great place to describe your book's content and ideas.
+Шрилы Санатаны Госвами
+
+Перевод и комментарии Гопипаранадханы Прабху
